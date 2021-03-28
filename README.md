@@ -1,1 +1,0 @@
-# smohata.github.io
